@@ -1,4 +1,5 @@
 Projeto: A Inundação de Conteúdos Feitos por IA: Reflexões sobre Qualidade e Mercado? 🤖🔗
+(https://web.dio.me/articles/a-inundacao-de-conteudos-feitos-por-ia-reflexoes-sobre-qualidade-e-mercado?back=%2Farticles&open-modal=true&page=1&order=oldest)
 
 📒 Descrição
 
